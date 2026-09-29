@@ -1,0 +1,2 @@
+# premium-shaft-tie-001-floor-loom-shaft-tie-up-thread
+Tired of wrestling with tangled tie-up notes and lost threading drafts? Your floor loom's shaft tie-up sequence is the backbone of every weave, but keeping it organized across projects is a recipe for confusion.  This Notion template transforms your chaotic paper scraps into a digital, searchable, and reusable reference. No more flipping through no
